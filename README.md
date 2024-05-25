@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @COSYBANANA63 My Atual Name is Tobi
+- 👋 Hi, I’m @COSYBANANA63 My Actual Name is Tobi
 - 👀 I’m interested in Every thing Tech and 3d design xp
 - 🌱 I’m currently learning Full Stack Development
 - 💞️ I’m looking to collaborate on World Changing Projects. Really Awsome projects where i can be myself and let my imagination out.
